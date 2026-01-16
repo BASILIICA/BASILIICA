@@ -1,4 +1,11 @@
-<p align="center"> for ponytown strictly </p>
+for ponytown strictly.
+
+  <img src="https://komarev.com/ghpvc/?username=BASILIICA-username&color=bca6b0&style=square&label=+++◟VISITORS.+++&abreviated=true">
+
+
+[PRNS.CC](https://pronouns.cc/@BASILICA)  –  [STRAW](https://tthebasilica.straw.page/)
+
+![accardirykerinloveooooo](https://i.ibb.co/ccw4whrF/Untitled545-20260116182712.png) </p>
 
 <p>
 <details>
@@ -17,4 +24,21 @@
 
   › sometimes i can be jokingly aggressive or mean, calling my friends names. don't take it seriously though, it's just how i end up showing affection. if you don't like it though, tell me please.
 
-  › overall don't be afraid to talk to me, i promise i'm nice.
+  › overall don't be afraid to talk to me, i promise i'm nice. 
+  </details>
+
+<details>
+  <summary> ♱ . fixations.</summary>
+  
+  **– 8:11.**
+  
+  **– HETALIA.**
+  
+  **– CASTLE OF NATIONS.**
+  
+  **– ED EDD N EDDY.**
+  
+  **– TYLER THE CREATOR.**
+
+  i have other interests. if you wanna see, just look at either my strawpage or prns.cc :-)
+  </details>
