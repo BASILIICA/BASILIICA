@@ -42,3 +42,21 @@ for ponytown strictly.
 
   i have other interests. if you wanna see, just look at either my strawpage or prns.cc :-)
   </details>
+
+  <details>
+    <summary>𓏻 ⋆ dni</summary>
+    
+  – basic dni criteria bullshit.
+    
+   – ship discourse. [makes me extremely uncomfortable i don't know why]
+
+  – people who make rape 'jokes'
+    
+  – okegom & dandy's world fandom
+    
+   – old friends.
+
+  
+  if any of these are crossed, **i'll hide or block.** i usually hide for 24 hours. if you're a friend and cross these, i'll give you a *warning.* if you're a friend in those fandoms then i'll give you a pass as long you don't talk to me about it.
+    
+  </details>
