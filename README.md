@@ -1,72 +1,49 @@
-for ponytown strictly.
+◞ ⊹   ࣪ ⋆ FOR PONYTOWN. !
 
   <img src="https://komarev.com/ghpvc/?username=BASILIICA-username&color=bca6b0&style=square&label=+++◟VISITORS.+++&abreviated=true">
 
 
-[PRNS.CC](https://pronouns.cc/@BASILICA)  –  [STRAW](https://tthebasilica.straw.page/)
 
-![accardirykerinloveooooo](https://i.ibb.co/ccw4whrF/Untitled545-20260116182712.png) </p>
+
+![cutteeeiwantitok](https://i.ibb.co/XxxpbxRr/68862b39.png) </p>
 
 
 
 <p>
 <details>
-  <summary>𓏵﹕ byi info.</summary>
+  <summary> 𓏵 BYI.</summary>
   
   
-  › VERY mentally ill. still trying to get help & more information on my issues, so please understand that i don't know EVERYTHING yet.
+ <sub> › I'M MENTALLY ILL. NOT SURE WHAT I HAVE YET, I AM STILL TRYING TO GET HELP AND FIGURE IT OUT. PLEASE DON'T EXPECT ME TO KNOW EVERYTHING!</sub>
   
-  › I DON'T LIKE INTERNET DRAMA RELATED TO ME AT ALL. i have enough issues so please leave me alone i don't need that in my life.
+ <sub> › I DON'T LIKE INTERNET DRAMA RELATED TO ME AT ALL. i have enough issues in real life, so please do not start anything.</sub>
   
-  › i have trust, attachment & abandonment issues. they're getting better, but please know this if i act on these.
+<sub>  › I HAVE TRUST & ATTACHMENT ISSUES. I APOLOGIZE IF I SAY TOO MUCH OR TOO LITTLE, OR GET ATTACHED. :( </sub>
   
-  › my mood can switch quickly. i may be hyperactive one moment, and tired or dismissive at another. please don't take it as me being mean at all or think you're bothering me. if you are then i'll just hide you for 24 hours.
-  
-  › i make kill yourself / sex jokes. i also say slurs such as faggot, cunt & tranny. if you're uncomfortable then please tell me and i'll try to stop, though i may slip up.
+<sub>  › I MAKE SUICIDE / SEX JOKES. I ALSO MAY SAY FAGGOT, CUNT & TRANNY. [ALL SLURS I **CAN** SAY.] IF UNCOMFORTABLE PLEASE TELL ME.</sub>
 
-  › sometimes i can be jokingly aggressive or mean, calling my friends names. don't take it seriously though, it's just how i end up showing affection. if you don't like it though, tell me please.
+<sub>  › I MAY CALL MY FRIENDS NAMES & PRETEND TO BE MEAN. HOWEVER DO NOT TAKE IT SERIOUSLY! IT'S JUST HOW I SHOW AFFECTION. ^__^ </sub>
 
-  › overall don't be afraid to talk to me, i promise i'm nice. 
+<sub>  › PLEASE DON'T BE SCARED TO TALK TO ME!!! I PROMISE I'M NICE. ;_; </sub>
   </details>
 
-<details>
-  <summary> ♱ . fixations.</summary>
-  
-  **– 8:11.**
-  
-  **– HETALIA.**
-  
-  **– CASTLE OF NATIONS.**
-  
-  **– ED EDD N EDDY.**
-
-  **– DICK FIGURES.**
-
-  **– METAL GEAR SOLID.**
-  
-  **– TYLER THE CREATOR.**
-
-  **– ORCAS.**
-
-  i have other interests. if you wanna see, just look at either my strawpage or prns.cc :-)
-  </details>
 
   <details>
-    <summary>𓏻 ⋆ dni</summary>
+    <summary>𓏻 ⋆ DNI.</summary>
     
-  – basic dni criteria bullshit.
+ <sub> – [BASIC DNI CRITERIA](https://dni-criteria.carrd.co/) </sub>
     
-   – ship discourse. [makes me extremely uncomfortable i don't know why]
+<sub>   – SHIP DISCOURSE!!!! [it makes me SUPER uncomfortable :-(] </sub>
 
-  – people who make rape 'jokes'
+<sub>  – RAPE 'JOKES' / 'I'M GONNA TOUCH YOU' </sub>
     
-  – okegom fandom
+<sub>  – OKEGOM FANDOM. </sub>
 
-  – people under 14... lmfao sorry i'm not interested in bein friends with kids
-    
-   – old friends.
+<sub>  – PEOPLE UNDER 14!! I DON'T WANNA BE FRIENDS WITH LITTLE KIDS. </sub>
+
+<sub> – FAKECLAIMERS & OLD FRIENDS. </sub>
 
   
-  if any of these are crossed, **i'll hide or block.** i usually hide for 24 hours. if you're a friend and cross these, i'll give you a *warning.* if it keeps happening then a block is in order.
-    
-  </details>
+ <sub> I'LL HIDE/BLOCK IF ANY OF THESE ARE CROSSED. I'LL USUALLY HIDE FOR 24 HOURS, OR BLOCK. I'LL GIVE YOU A WARNING, AND IF IT KEEPS HAPPENING THEN IT'S A BLOCK. </sub>
+
+
