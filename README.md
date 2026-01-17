@@ -52,15 +52,13 @@ for ponytown strictly.
 
   – people who make rape 'jokes'
     
-  – okegom & dandy's world fandom
+  – okegom fandom
 
   – people under 14... lmfao sorry i'm not interested in bein friends with kids
     
    – old friends.
 
   
-  if any of these are crossed, **i'll hide or block.** i usually hide for 24 hours. if you're a friend and cross these, i'll give you a *warning.*
-  
-  if you're a friend in those fandoms then i'll give you a pass as long you don't talk to me about it.
+  if any of these are crossed, **i'll hide or block.** i usually hide for 24 hours. if you're a friend and cross these, i'll give you a *warning.* if it keeps happening then a block is in order.
     
   </details>
