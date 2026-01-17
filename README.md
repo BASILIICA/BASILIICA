@@ -7,7 +7,7 @@ for ponytown strictly.
 
 ![accardirykerinloveooooo](https://i.ibb.co/ccw4whrF/Untitled545-20260116182712.png) </p>
 
-![trans](https://i.ibb.co/CptCr4zs/Untitled547-20260116204708.png) </p>
+
 
 <p>
 <details>
