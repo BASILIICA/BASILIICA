@@ -3,7 +3,7 @@
   <img src="https://komarev.com/ghpvc/?username=BASILIICA-username&color=bca6b0&style=square&label=+++◟VISITORS.+++&abreviated=true">
 
 
-[PRNS.CC](https://pronouns.cc/BASILICA) - [STRAWPAGE](https://tthebasilica.straw.page/)
+[PRNS.CC](https://pronouns.cc/BASILICA)
 
 ![cutteeeiwantitok](https://i.ibb.co/XxxpbxRr/68862b39.png) </p>
 
