@@ -37,8 +37,14 @@ for ponytown strictly.
   **– CASTLE OF NATIONS.**
   
   **– ED EDD N EDDY.**
+
+  **– DICK FIGURES.**
+
+  **– METAL GEAR SOLID.**
   
   **– TYLER THE CREATOR.**
+
+  **– ORCAS.**
 
   i have other interests. if you wanna see, just look at either my strawpage or prns.cc :-)
   </details>
