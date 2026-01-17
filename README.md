@@ -3,9 +3,10 @@
   <img src="https://komarev.com/ghpvc/?username=BASILIICA-username&color=bca6b0&style=square&label=+++◟VISITORS.+++&abreviated=true">
 
 
-
+[PRNS.CC](https://pronouns.cc/BASILICA) - [STRAWPAGE](https://tthebasilica.straw.page/)
 
 ![cutteeeiwantitok](https://i.ibb.co/XxxpbxRr/68862b39.png) </p>
+
 
 
 
@@ -45,5 +46,8 @@
 
   
  <sub> I'LL HIDE/BLOCK IF ANY OF THESE ARE CROSSED. I'LL USUALLY HIDE FOR 24 HOURS, OR BLOCK. I'LL GIVE YOU A WARNING, AND IF IT KEEPS HAPPENING THEN IT'S A BLOCK. </sub>
+
+
+ 
 
 
