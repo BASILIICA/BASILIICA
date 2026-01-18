@@ -46,8 +46,12 @@
 
   
  <sub> I'LL HIDE/BLOCK IF ANY OF THESE ARE CROSSED. I'LL USUALLY HIDE FOR 24 HOURS, OR BLOCK. I'LL GIVE YOU A WARNING, AND IF IT KEEPS HAPPENING THEN IT'S A BLOCK. </sub>
+</details>
 
 
- 
+
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tr7vkgt43ryzcy2xcmyic4k5ta&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
 
