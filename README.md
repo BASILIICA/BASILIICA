@@ -37,8 +37,6 @@
 <sub>   – SHIP DISCOURSE!!!! [it makes me SUPER uncomfortable :-(] </sub>
 
 <sub>  – RAPE 'JOKES' / 'I'M GONNA TOUCH YOU' </sub>
-    
-<sub>  – OKEGOM FANDOM. </sub>
 
 <sub>  – PEOPLE UNDER 14!! I DON'T WANNA BE FRIENDS WITH LITTLE KIDS. </sub>
 
