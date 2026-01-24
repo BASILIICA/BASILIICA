@@ -5,7 +5,7 @@
 
 [PRNS.CC](https://pronouns.cc/BASILICA)
 
-![cutteeeiwantitok](https://i.ibb.co/XxxpbxRr/68862b39.png) </p>
+![cuties](https://64.media.tumblr.com/f162e669cdbe74b9cb1823b006900564/73e40bdae9d2b544-20/s1280x1920/3a372f54a50eb1e6472efe48ab70eafd0c6927ff.pnj) </p>
 
 
 
@@ -15,7 +15,7 @@
   <summary> 𓏵 BYI.</summary>
   
   
- <sub> › I'M MENTALLY ILL. NOT SURE WHAT I HAVE YET, I AM STILL TRYING TO GET HELP AND FIGURE IT OUT. PLEASE DON'T EXPECT ME TO KNOW EVERYTHING!</sub>
+ <sub> › I'M MENTALLY ILL. NOT SURE WHAT I HAVE YET, I AM STILL TRYING TO GET HELP AND FIGURE IT OUT. PLEASE DON'T EXPECT ME TO KNOW EVERYTHING.</sub>
   
  <sub> › I DON'T LIKE INTERNET DRAMA RELATED TO ME AT ALL. i have enough issues in real life, so please do not start anything.</sub>
   
@@ -34,7 +34,7 @@
     
  <sub> – [BASIC DNI CRITERIA](https://dni-criteria.carrd.co/) </sub>
     
-<sub>   – SHIP DISCOURSE!!!! [it makes me SUPER uncomfortable :-(] </sub>
+<sub>   – SHIP DISCOURSE!!!! [ it makes me SUPER uncomfortable :-( ] </sub>
 
 <sub>  – RAPE 'JOKES' / 'I'M GONNA TOUCH YOU' </sub>
 
@@ -43,7 +43,7 @@
 <sub> – FAKECLAIMERS & OLD FRIENDS. </sub>
 
   
- <sub> I'LL HIDE/BLOCK IF ANY OF THESE ARE CROSSED. I'LL USUALLY HIDE FOR 24 HOURS, OR BLOCK. I'LL GIVE YOU A WARNING, AND IF IT KEEPS HAPPENING THEN IT'S A BLOCK. </sub>
+ <sub> I'LL HIDE/BLOCK IF ANY OF THESE ARE CROSSED. I'LL USUALLY HIDE FOR 24 HOURS, OR BLOCK. </sub>
 </details>
 
 
