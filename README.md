@@ -50,6 +50,18 @@
  <sub> I'LL HIDE/BLOCK IF ANY OF THESE ARE CROSSED. I'LL USUALLY HIDE FOR 24 HOURS, OR BLOCK. </sub>
 </details>
 
+<p>
+<details>
+  <summary> ♡ pt info.</summary>
+
+  <sub> – feel free to c+h anytime!!! unless i have dni in my name, please feel free to c+h. i love it soo much it means so much to me it makes my day ^__^ </sub>
+  
+  <sub> – w2i (whisper to interact) pls!! sometimes i won't be able to see public chats due to being offtab or afk so pls w2i </sub>
+  
+  <sub> – i'm usually in fandom areas... usually in the HETALIA or HOMESTUCK area. if not there, then usually at spawn or docks. </sub>
+  
+  <sub> – like said earlier, feel free to chat with me!! i need new friends!! promise i'm nice. sometimes i'll try to interact first, however i may be awkward since i'm usually anxious and forcing myself to interact. please keep that in mind if i seem to have slow responses or be awkward. </sub>
+
 
 
 
