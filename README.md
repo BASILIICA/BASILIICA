@@ -3,7 +3,9 @@
   <img src="https://komarev.com/ghpvc/?username=BASILIICA-username&color=bca6b0&style=square&label=+++◟lovelies.+++&abreviated=true">
 
 
-[PRNS.CC](https://pronouns.cc/BASILICA)
+[PRNS.CC](https://pronouns.cc/BASILICA) – [STRAWPAGE](https://tthebasilica.straw.page/roxlal)
+
+<sub> main strawpage isnt finishes yet oopsies so just take that one </sub>
 
 ![cuties](https://i.ibb.co/MqW0yLT/Untitled562-20260131095827.png) </p>
 
