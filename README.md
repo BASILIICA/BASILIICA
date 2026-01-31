@@ -61,6 +61,7 @@
   <sub> – i'm usually in fandom areas... usually in the HETALIA or HOMESTUCK area. if not there, then usually at spawn or docks. </sub>
   
   <sub> – like said earlier, feel free to chat with me!! i need new friends!! promise i'm nice. sometimes i'll try to interact first, however i may be awkward since i'm usually anxious and forcing myself to interact. please keep that in mind if i seem to have slow responses or be awkward. </sub>
+  </details>
 
 
 
