@@ -5,7 +5,7 @@
 
 [PRNS.CC](https://pronouns.cc/BASILICA) – [STRAWPAGE](https://tthebasilica.straw.page/roxlal)
 
-<sub> main strawpage isnt finishes yet oopsies so just take that one </sub>
+<sub> main strawpage isnt finished yet oopsies so just take that one </sub>
 
 ![cuties](https://i.ibb.co/MqW0yLT/Untitled562-20260131095827.png) </p>
 
