@@ -1,18 +1,16 @@
-◞ ⊹   ࣪ ⋆ FOR PONYTOWN. !
+◞ ⊹   ࣪ ⋆ for ponytown. !
 
-  <img src="https://komarev.com/ghpvc/?username=BASILIICA-username&color=bca6b0&style=square&label=+++◟VISITORS.+++&abreviated=true">
+  <img src="https://komarev.com/ghpvc/?username=BASILIICA-username&color=bca6b0&style=square&label=+++◟lovelies.+++&abreviated=true">
 
 
 [PRNS.CC](https://pronouns.cc/BASILICA)
 
-![cuties](https://64.media.tumblr.com/f162e669cdbe74b9cb1823b006900564/73e40bdae9d2b544-20/s1280x1920/3a372f54a50eb1e6472efe48ab70eafd0c6927ff.pnj) </p>
-
-
+![cuties](https://i.ibb.co/MqW0yLT/Untitled562-20260131095827.png) </p>
 
 
 <p>
 <details>
-  <summary> 𓏵 BYI.</summary>
+  <summary> 𓏵 byi.</summary>
   
   
  <sub> › I'M MENTALLY ILL. NOT SURE WHAT I HAVE YET, I AM STILL TRYING TO GET HELP AND FIGURE IT OUT. PLEASE DON'T EXPECT ME TO KNOW EVERYTHING.</sub>
