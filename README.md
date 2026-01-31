@@ -28,7 +28,7 @@
 
 
   <details>
-    <summary>𓏻 ⋆ DNI.</summary>
+    <summary>𓏻 ⋆ dni.</summary>
     
  <sub> – [BASIC DNI CRITERIA](https://dni-criteria.carrd.co/) </sub>
     
@@ -38,7 +38,11 @@
 
 <sub>  – PEOPLE UNDER 14!! I DON'T WANNA BE FRIENDS WITH LITTLE KIDS. </sub>
 
-<sub> – FAKECLAIMERS & OLD FRIENDS. </sub>
+<sub> – FAKECLAIMERS, OLD FRIENDS. </sub>
+
+<sub> – MENTIONS OF EGBERTED / YUTAVERGIL. IT MAKES ME EXTREMELY UNCOMFORTABLE. </sub>
+
+<sub> – CERTAIN JOHN EGBERT KINS. PERSONAL REASONS. </sub>
 
   
  <sub> I'LL HIDE/BLOCK IF ANY OF THESE ARE CROSSED. I'LL USUALLY HIDE FOR 24 HOURS, OR BLOCK. </sub>
