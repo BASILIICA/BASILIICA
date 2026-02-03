@@ -5,7 +5,7 @@
 
 [PRNS.CC](https://pronouns.cc/NERDSNUFF) – [STRAWPAGE](https://tthebasilica.straw.page/wip)
 
-![lovehimsm](https://media.discordapp.net/attachments/1431616944494088232/1459222584808837427/b820d699cf331f03071af692a7e3f29b.gif?ex=6982226f&is=6980d0ef&hm=29acda6bcbf8f6fdf87ae088495b0910ce666c7de25c96ce119168594ade29e0&=&width=588&height=441)</p>
+![gun](https://media.discordapp.net/attachments/1431616944494088232/1458027817605529600/09c609d5417e099fe774431de5faf99f.gif?ex=698266f8&is=69811578&hm=e05314c1444c7cce476a9f9b8f57bc6fd1b12f1dc42408d1aadf6ba529f4d82c&=&width=525&height=394)</p>
 
 
 <p>
