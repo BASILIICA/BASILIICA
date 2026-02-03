@@ -26,9 +26,9 @@
 
 
   <details>
-    <summary>𓏻 ⋆ dni.</summary>
+    <summary>𓏻 ⋆ DNI.</summary>
     
-<sub> NO DNI, JUST HAVE COMMON SENSE, DON'T MAKE RAPE JOKES OR MENTION SHIP DISCOURSE. IT DISCOMFORTS ME. </sub>
+<sub> NO DNI OTHER THEN JUST HAVE COMMON SENSE, DON'T MAKE RAPE JOKES OR MENTION SHIP DISCOURSE. IT DISCOMFORTS ME. ALSO NO OLD FRIENDS INTERACTING UNLESS I DO, I LEFT YOU FOR A REASON. </sub>
 
   
  <sub> I'LL HIDE/BLOCK IF THOSE ARE CROSSED. I'LL USUALLY HIDE FOR 24 HOURS, OR BLOCK. </sub>
@@ -36,7 +36,7 @@
 
 <p>
 <details>
-  <summary> ♡ pt info.</summary>
+  <summary> ♡ PT INFO.</summary>
 
   <sub> – feel free to c+h anytime! unless i have dni in my name, please feel free to c+h. i love it soo much it means so much to me it makes my day. </sub>
   
