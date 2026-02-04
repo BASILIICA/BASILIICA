@@ -1,6 +1,6 @@
 ◞ ⊹   ࣪ ⋆ FOR PONYTOWN.
 
-  <img src="https://komarev.com/ghpvc/?username=BASILIICA-username&color=bca6b0&style=square&label=+++◟lovelies.+++&abreviated=true">
+  <img src="https://komarev.com/ghpvc/?username=BASILIICA-username&color=bca6b0&style=square&label=+++◟INMATES.+++&abreviated=true">
 
 
 [PRNS.CC](https://pronouns.cc/NERDSNUFF) – [STRAWPAGE](https://tthebasilica.straw.page)
